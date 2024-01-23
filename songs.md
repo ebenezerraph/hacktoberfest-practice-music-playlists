@@ -13,6 +13,7 @@
 - [Alone](https://open.spotify.com/track/3MEYFivt6bilQ9q9mFWZ4g?si=e420052b67f9492a) by Marshmellow+
 - [Heavenly](https://open.spotify.com/track/70YTBH8vOGJNMhy6186yFm?si=05721fbbc14142ca) by Cigarettes After Sex
 - [LOVE](https://open.spotify.com/track/6PGoSes0D9eUDeeAafB2As?si=b03a1700d5dc400f) by Kendrick Lamar ft. Zacari
+- [Go Your Own Way](https://open.spotify.com/track/07GvNcU1WdyZJq3XxP0kZa?si=2a0d74eaa5a847ae) by Fleetwood Mac
 - [Warriors](https://open.spotify.com/track/1sWeSMifj6Z6kZyI6z3bRc?si=95cfc11c1c484fd4) by Imagine Dragons
 - [Payphone](https://open.spotify.com/track/1XGmzt0PVuFgQYYnV2It7A?si=b0352e7ee25e4634) by Maroon5
 - [A thousand years](https://open.spotify.com/track/6lanRgr6wXibZr8KgzXxBl?si=66264342aa7e4adf) by Christiana Perri
