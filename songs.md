@@ -103,6 +103,7 @@
 -   [Warriors](https://open.spotify.com/track/1sWeSMifj6Z6kZyI6z3bRc?si=95cfc11c1c484fd4) by Imagine Dragons
 -   [Payphone](https://open.spotify.com/track/1XGmzt0PVuFgQYYnV2It7A?si=b0352e7ee25e4634) by Maroon5
 -   [A thousand years](https://open.spotify.com/track/6lanRgr6wXibZr8KgzXxBl?si=66264342aa7e4adf) by Christiana Perri
+-   [It Costs That Much](https://open.spotify.com/track/4nu49nwy5BZ2OVGQlWVLea) by Woah Dude
 -   [Only You](https://open.spotify.com/track/5ZtfujhQIVRZm2RMZPQ3iD?si=b16bac6253544141) by Selena Gomez
 -   [Control](https://open.spotify.com/track/5NH6GqeHO5Zi4bJpPfnwPs) by Armaan Malik
 -   [Wondeful Rush](https://open.spotify.com/track/1svfceEomGTQo147p3VDbA?si=32e9ee8030f841b9) by µ's
